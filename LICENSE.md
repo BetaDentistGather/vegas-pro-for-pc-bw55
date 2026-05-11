@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows vip Extension: color-correction & time-remapping is the best Vegas Pro for PC | Vegas Pro for Windows extension, featuring
 
 
 
